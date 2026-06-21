@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="21440553" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/goldship-umamusume-umamusume-pretty-derby-pretty-derby-vtuber-gif-21440553">Goldship Umamusume GIF</a>from <a href="https://tenor.com/search/goldship-gifs">Goldship GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![goldship](https://tenor.com/view/goldship-umamusume-umamusume-pretty-derby-pretty-derby-vtuber-gif-21440553)
