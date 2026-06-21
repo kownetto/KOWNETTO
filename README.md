@@ -1,1 +1,1 @@
-![goldship](https://tenor.com/view/goldship-umamusume-umamusume-pretty-derby-pretty-derby-vtuber-gif-21440553)
+https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif
