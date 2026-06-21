@@ -1,1 +1,1 @@
-https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif
+![goldship](https://media3.giphy.com/media/v1.Y2lkPTZjMDliOTUyMWdoc3BqNWRvM2xmcW5kd3U4YmU1MGtjNHQzbGxlN2s0MmxqN29jMiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/MUcgVkZaZe2qwDdVfI/giphy.gif)
